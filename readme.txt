@@ -4,3 +4,4 @@ I fail the exam.....
 quit me
 stupid me!
 I wanna get more money!!!
+no function, no life
